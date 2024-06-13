@@ -44,4 +44,5 @@ I have been a manual tester with 4 years of experience in quality assurance look
 
 
 **Achievement**
+
 Be part of the team in increasing Promoter GMV to grow by 100% as well as driving growth and several areas of improvement for 2024 in Kredivo Group
